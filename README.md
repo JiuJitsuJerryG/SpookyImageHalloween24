@@ -1,0 +1,1 @@
+An eerie, pixelated figure draped in shadowy tendrils, evoking a haunting presence under ominous swirling skies. This digital art piece captures a sense of mystery and unease, blending abstract and supernatural elements in a monochromatic style.
